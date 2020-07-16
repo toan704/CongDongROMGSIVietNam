@@ -1,1 +1,1 @@
-Cong Dong ROM GSI Viet Nam
+CỘNG ĐỒNG ROM GSI VIỆT NAM - Github
